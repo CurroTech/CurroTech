@@ -21,8 +21,6 @@ A significant highlight of my career has been my involvement with Apple. I've ha
 
 I am continually seeking to learn and grow, embracing new knowledge and skills with open arms. On GitHub, I'm excited to collaborate on projects that push technological boundaries, particularly those that leverage my experience with Apple and my expertise in technology solutions.
 
-Let's connect to innovate and craft solutions that make a real impact!
-
 📬 Contact 
 For a quick response, DM me on instagram & LinkedIn or Email me at jacksoncurro@icloud.com
 
