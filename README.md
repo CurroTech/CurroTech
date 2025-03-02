@@ -4,7 +4,7 @@ Hi there, I'm Jackson 👋
 🔍 About Me:
 
 
-As a tech aficionado with a keen eye for solution building and design, I bring over 4 years of rich experience in sales and consulting. My journey has seen me partnering with a diverse array of businesses, from nimble startups to large-scale enterprise clients. Specializing in Mobility, Data & IP, UC & Cloud solutions, I thrive in environments that challenge me to deliver innovative solutions.
+As a tech aficionado with a keen eye for solution building and design, I bring over 5 years of rich experience in sales and consulting. My journey has seen me partnering with a diverse array of businesses, from nimble startups to large-scale enterprise clients. Specializing in Mobility, Data & IP, UC & Cloud solutions, I thrive in environments that challenge me to deliver innovative solutions.
 
 🌐 Tech & Solutions:
 
